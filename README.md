@@ -8,4 +8,4 @@ Auto Vehicle Brake System: Accident prevention with smart braking.
 Thumb-Based Ignition: Biometric-based keyless vehicle access.
 📊 With the IoT market booming, ANiot bridges the gap between advanced tech and everyday needs.
 #Amirah #NajafAli #Sahiba rehmat ali khan #Iqra rehmat ali
-#Hackathon #IoT #Innovation team: Iqra Rehmat Ali Najaf Ali Sahiba Rehmat Ali Khan 
+#Hackathon #IoT #Innovation team: Iqra Rehmat Ali Najaf Ali Sahiba Rehmat Ali Khan .
